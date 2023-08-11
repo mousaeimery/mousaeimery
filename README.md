@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mousaeimery
-- 👀 I’m interested in IT
+- 👀 I’m interested in NFT
 - 🌱 I’m currently learning NFT
-- 💞️ I’m looking to collaborate on WEB3
+- 💞️ I’m looking to collaborate on NFT
 - 📫 How to reach me Milions Dollar
 
 <!---
